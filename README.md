@@ -9,4 +9,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: linkedin.com/in/lavanyak278
 - 😄 Pronouns: She/Her
 - 💡 Always excited about exploring new ideas, collaborating on innovative projects, and solving real-world problems with technology. 
+
 -->
